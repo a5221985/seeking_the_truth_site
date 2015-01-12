@@ -1,5 +1,6 @@
 site_name: Seeking the Truth
 pages:
 - [index.md, Home]
+- [sai_baba.md, Sai Baba and His Teachings]
 - [about.md, About]
 theme: readthedocs
