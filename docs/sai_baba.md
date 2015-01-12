@@ -14,7 +14,7 @@
 	3. His practices:
 		1. He practiced Muslim Rituals [Wikipedia](http://en.wikipedia.org/wiki/Sai_Baba_of_Shirdi)
 		1. Lived in Mosque [Wikipedia](http://en.wikipedia.org/wiki/Sai_Baba_of_Shirdi)
-			1. [Sai Baba Leaning against the wall of his Mosque in which he stayed and prayed](img/Shirdi_Sai_Leaning_to_Mosque.png)
+			1. ![Sai Baba Leaning against the wall of his Mosque in which he stayed and prayed](img/Shirdi_Sai_Leaning_to_Mosque.png) *Fig: Sai Baba Leaning against the wall of his Mosque in which he stayed and prayed*
 4. His background:
 	1. He is regarded as Saint/ *Fakir* (Muslim *Sufi* Ascetic) [Wikipedia](http://en.wikipedia.org/wiki/Sai_Baba_of_Shirdi)
 		1. Evidence: A local temple priest in Shirdi recognized him as a muslim saint (*Fakir*) [Wikipedia](http://en.wikipedia.org/wiki/Sai_Baba_of_Shirdi)
