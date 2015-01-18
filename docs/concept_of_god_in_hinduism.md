@@ -28,7 +28,7 @@
 		* Rudra is truly one; for the knowers of Brahman do not admit the existence of a second, He alone rules all the worlds by His powers. He dwells as the inner Self of every living being. After having created all the worlds, He, their Protector, takes them back into Himself at the end of time.
 		
 			
-	5. > "He has not master in this world, no ruler, nor is there any symbol for Him. He is the cause, the cause of all the causes. He has no father or controller above Him." [Svetasvatara Upanishad 6:9]
+	5. > "He has no master in this world, no ruler, nor is there any symbol for Him. He is the cause, the cause of all the causes. He has no father or controller above Him." [Svetasvatara Upanishad 6:9]
 
 * The following verses from the Upanishad allude to the inability of man to imagine God in a particular form:
 	* > "Na samdrse tisthati rupam asya, na caksusa pasyati kas canainam." ("His form is not to be seen; no one sees Him with the eye.") [Svetasvatara Upanishad 4:20]
