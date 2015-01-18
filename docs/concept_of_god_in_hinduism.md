@@ -23,10 +23,11 @@
 	1. > "Ekam evadvitiyam". ("He is One only without a second.") [Chandogya Upanishad 6:2:1]
 	2. > "Na casya kascij janita na cadhipah.". ("Of Him there are neither parents nor lord.") [Svetasvatara Upanishad 6:9]
 	3. > "Na tasya pratima asti". ("There is no likeness of Him.") [Svetasvatara Upanishad 4:19]
-	4. > eko hi rudro na dvitīyāya tasthe ya imāṃl lokān īśata īśanībhiḥ pratyaṅ janās tiṣṭhati saṃcukocāntakāle saṃsṛjya viśvā bhuvanāni gopāḥ [Svetasvatara Upanishad 3:2]
+	4. > "eko hi rudro na dvitīyāya tasthe ya imāṃl lokān īśata īśanībhiḥ pratyaṅ janās tiṣṭhati saṃcukocāntakāle saṃsṛjya viśvā bhuvanāni gopāḥ" [Svetasvatara Upanishad 3:2]
 	
 		* Rudra is truly one; for the knowers of Brahman do not admit the existence of a second, He alone rules all the worlds by His powers. He dwells as the inner Self of every living being. After having created all the worlds, He, their Protector, takes them back into Himself at the end of time.
 		
+			
 	5. > "He has not master in this world, no ruler, nor is there any symbol for Him. He is the cause, the cause of all the causes. He has no father or controller above Him." [Svetasvatara Upanishad 6:9]
 
 * The following verses from the Upanishad allude to the inability of man to imagine God in a particular form:
