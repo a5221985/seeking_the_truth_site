@@ -39,7 +39,7 @@
 * Jesus (pbuh) reiterated the message of **monotheism** that was given to all  earler prophets of All Mighty GOD.
 
 ### Concept of GOD in the Old Testament
-#### God is One
+#### GOD is One
 * The law that Jesus (pbuh) came to fulfill is in the Old Testament. 
 * The following verse in the Old Testament contains exhortation from Moses (pbuh).
 	1. > "Shama Israelu Adonai Ila Hayno Adna Ikhad."
