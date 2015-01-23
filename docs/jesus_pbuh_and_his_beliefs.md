@@ -58,6 +58,7 @@
 3. > "Thou shalt not bow down thyself to them, nor serve them: for I the Lord thy GOD am a jealous GOD."
 	
 	* [The Bible, Exodus 20:3-5]
+	
 4. > "Thou shalt have none other gods before me."
 5. > "Thou shalt not make thee any graven image, or any likeness of anything that is in heaven above, or that in the earth beneath, or that is in the water beneath the earth."
 6. > "Thou shalt not bow down thyself unto them, nor serve them; for I the LORD thy GOD am a jealous GOD." [The Bible, Deuteronomy 5:7-9] 
