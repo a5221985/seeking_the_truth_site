@@ -15,7 +15,7 @@
 7. > Thou shalt not kill
 8. > Thou shalt not commit adultery
 9. > Thou shalt not steal
-10. > Thou shalt not bear flase witness against thy neighbour
+10. > Thou shalt not bear false witness against thy neighbour
 11. > Thou shalt not cevet [neighbor's house]
 12. > Thou shalt not covet [neighbor's wife]
 13. > Thou shalt not covet [neighbor's servents, animals, or anything else]
