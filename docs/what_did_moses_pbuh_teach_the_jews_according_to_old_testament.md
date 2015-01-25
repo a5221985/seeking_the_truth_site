@@ -3,7 +3,7 @@
 * Moses (pbuh) is considered to be a spritual teacher also known as a Prophet and a Messenger of All Mighty GOD who was sent to the Jews.
 * When the Jews were suffering at the hands of Pharoah of Egypt, Moses (pbuh) received guidance from All Mighty GOD and followed GOD's commands and instructions which resulted in the rescue of the Jews from the tyranny of Pharoah.
 * Soon after the rescue, Moses (pbuh) received revelation from All Mighty GOD on mountain Sina. This revelation is the Torat which is believed by the Jews to be the ten commandments.
-* Moses (pbuh) ruled his nation by strictly observing the teachings of Torat.
+* Moses (pbuh) ruled his nation by strictly applying the teachings of Torat.
 
 ### The Ten Commandments
 1. > I am the LORD thy GOD
