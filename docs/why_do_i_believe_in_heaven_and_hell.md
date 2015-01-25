@@ -4,7 +4,7 @@
 * Now let us assume that both person *A* and person *B* have died.
 
 ### **Scenario 1: If person *A* is right**
-* If person *A* is right, this means that there is no heaven or hell and hence no punishment or reward after death. This results in both person *A* and person *B* getting lost and reaching the same state.
+* If person *A* is right, this means that there is no heaven or hell and hence no punishment or reward after death. This results in both person *A* and person *B* getting lost into ether and reaching the same state.
 
 ### **Scenario 2: If person *B* is right**
 * If person *B* is right, this means that there is heaven and hell and therefore reward and punishment respectively. Assuming that person *B* has fulfilled the requirements for entering heaven due to the fear of getting punished, he enters heaven.
