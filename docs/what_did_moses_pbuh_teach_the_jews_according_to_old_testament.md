@@ -6,7 +6,7 @@
 * Moses (pbuh) ruled his nation by strictly observing the teachings of Torat.
 
 ### The Ten Commandments
-1. > I am the Lord thy GOD
+1. > I am the LORD thy GOD
 2. > Thou shalt have no other gods before ME
 3. > Thou shalt not make unto thee any graven image
 4. > Thou shalt not take the name of the LORD thy GOD in vain
