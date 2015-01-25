@@ -24,4 +24,4 @@
 	* [Bible - King James Version, Deuteronomy Chapter 5, Verses 4 to 21]
 	
 ### Conclusion
-* In conclusion, Moses (pbuh) believed in One GOD and taught people the same. Moses (pbuh) also ruled by the law of All Mighty GOD and expected his nation to abide by the law of All Mighty GOD.
+* In conclusion, Moses (pbuh) believed in One GOD and taught people the same. Moses (pbuh) also ruled by the law of All Mighty GOD and expected his nation to abide by it.
