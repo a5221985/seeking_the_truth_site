@@ -11,7 +11,7 @@
 * Person *A* on the otherhand, lived life according to his own will due to which there is high likelihood of him not fulfilling the requirements for entering heaven. Hence person *B* most likely enters hell.
 
 ### Conclusion
-* From the above analysis, we can come to the conclusion that if one believes in heaven and hell and works hard to fulfill the criteria required to enter heaven, he is in a better position, irrespective of whether person *A* or person *B* is right
+* From the above analysis, we can come to the conclusion that if one believes in heaven and hell and works hard to fulfill the criteria required for entering heaven, he is in a win-win situation, irrespective of whether person *A* or person *B* is right
 * If one does not believe in heaven and hell and does not work towards fulfilling the criteria required to enter heaven, he is more likely to enter hell as compared to person *A*.
 * Therefore believing in heaven and hell and working towards fulfilling the criteria to enter heaven is a safer option to choose.
 
