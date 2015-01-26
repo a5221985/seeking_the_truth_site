@@ -1,5 +1,6 @@
 # Welcome
 
+## [Beware of Spiritual Gurus of This Kind](beware_of_spiritual_gurus_of_this_kind.md)
 ## [Concept of God in Hinduism](concept_of_god_in_hinduism.md)
 ## [Sai Baba and His Teachings](sai_baba.md)
 ## [Jesus (pbuh) and His Teachings](jesus_pbuh_and_his_beliefs.md)
