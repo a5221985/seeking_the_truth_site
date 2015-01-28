@@ -11,6 +11,8 @@
 		* *Meaning: One GOD governs all*
 	* > *ALLAH Malik* [Wikipedia](http://en.wikipedia.org/wiki/Sai_Baba_of_Shirdi)
 		* *Meaning: All mighty GOD is King*
+	* > *ALLAH Bhala karega*
+		* *Meaning: All mighty GOD will do that which is beneficial*
 	* His practices:
 		* He practiced Muslim Rituals [Wikipedia](http://en.wikipedia.org/wiki/Sai_Baba_of_Shirdi)
 		* Lived in Mosque [Wikipedia](http://en.wikipedia.org/wiki/Sai_Baba_of_Shirdi)
