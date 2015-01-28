@@ -34,3 +34,8 @@
 	* Research Paper: 
 		* Astrologers claimed that they can tell a person's intelligence from his horoscope but 27 astrologers failed to perform better than chance with 40 horoscopes of intellecutally bright subjects and mentally handicapped subjects. Hence, Indian Astrology cannot be considered as a science. [[An Indian Test of Indian Astrology](http://www.csicop.org/si/show/an_indian_test_of_indian_astrology)]
 * The above research proves that astrology hardly works and is not better than a game of chance
+
+#### Hindu Scriptures about Astrology
+* According to the following verses in *Manusmriti*, `astrology` and `games of chance` are considered as `sins`.
+	1. > "... he who subsists by `astrology` ... (162) ... must be carefully avoided (167)" [Manusmriti 3:162,167]
+	2. > "Drinking, `dice`, women, and hunting, these four (which have been enumerated) in succession, he must know to be the most pernicious in the set that springs from love of pleasure." [Manusmrithi 7:50]
