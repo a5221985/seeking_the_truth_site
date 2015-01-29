@@ -8,5 +8,5 @@
 ## [Why do I believe in Heaven and Hell](why_do_i_believe_in_heaven_and_hell.md)
 ## [History Of Astrology](history_of_astrology.md)
 
-## Any Comments? Please send an email to me
+## Any Comments? Please send an e-mail to me
 * My e-mail id is abdm03142014@gmail.com
