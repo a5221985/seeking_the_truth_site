@@ -7,3 +7,6 @@
 ## [What did Moses (pbuh) teach the Jews (according to Old Testament)?](what_did_moses_pbuh_teach_the_jews_according_to_old_testament.md)
 ## [Why do I believe in Heaven and Hell](why_do_i_believe_in_heaven_and_hell.md)
 ## [History Of Astrology](history_of_astrology.md)
+
+## Any Comments? Please send an email to me
+* My e-mail id is abdm03142014@gmail.com
