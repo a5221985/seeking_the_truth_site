@@ -1,4 +1,9 @@
 # What did Moses (pbuh) Teach the Jews (according to Old Testament)?
+
+![Fake Tablets](img/fake_tablet_images.png)
+**NOTE: The image does not show actual tablets of Moses (pbuh) because the original tablets have not been preserved**
+
+
 ### Who is Moses (pbuh)?
 * Moses (pbuh) is considered to be a spritual teacher also known as a Prophet and a Messenger of All Mighty GOD who was sent to the Jews.
 * When the Jews were suffering at the hands of Pharoah of Egypt, Moses (pbuh) received guidance from All Mighty GOD and followed GOD's commands and instructions which resulted in the rescue of the Jews from the tyranny of Pharoah.
