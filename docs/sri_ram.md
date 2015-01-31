@@ -1,4 +1,4 @@
-# Sri Ram and His Beliefs?
+# SRI RAM AND HIS BELIEFS
 
 ![Bow and Arrows](img/bow_and_arrows.png)
 
