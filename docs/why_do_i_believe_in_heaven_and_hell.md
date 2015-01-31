@@ -1,4 +1,7 @@
 # Why do I Believe in Heaven and Hell?
+
+![Sky](img/sky.png)
+
 * Consider two people, person *A* and person *B*. Let person *A* be an atheist and let person *B* be a believer in heaven and hell.
 * An atheist is a person who does not believe in reward or punishment after death due to non belief in the existance of GOD. This person lives life as per his own will without any fear of getting punished if he does not meet the criterion for entering heaven.
 * Now let us assume that both person *A* and person *B* have died.
