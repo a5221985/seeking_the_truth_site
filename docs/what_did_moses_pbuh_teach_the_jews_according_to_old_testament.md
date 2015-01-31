@@ -1,4 +1,4 @@
-# What did Moses (pbuh) Teach the Jews (according to Old Testament)?
+# WHAT DID MOSES (PBUH) TEACH THE JEWS [ACCORDING TO OLD TESTAMENT]?
 
 ![Fake Tablets](img/fake_tablet_images.png)
 **NOTE: The image does not show actual tablets of Moses (pbuh) because the original tablets have not been preserved**

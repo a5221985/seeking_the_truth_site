@@ -1,4 +1,4 @@
-# Why do I Believe in Heaven and Hell?
+# WHY DO I BELIEVE IN HEAVEN AND HELL?
 
 ![Sky](img/sky.png)
 

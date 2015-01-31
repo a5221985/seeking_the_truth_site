@@ -1,4 +1,4 @@
-# History of Astrology
+# HISTORY OF ASTROLOGY
 #### Oldest treatises
 * Horoscopic Astrology in the Indian subcontinent came from Hellinistic influences, post-dating Vedic period
 *  Vedas, the ancient and sacred literature of the Hindus do not mention astrology.
