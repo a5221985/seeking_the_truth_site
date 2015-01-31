@@ -1,5 +1,7 @@
 # Sri Ram and His Beliefs?
-* ![Bow and Arrows](img/bow_and_arrows.png)
+
+![Bow and Arrows](img/bow_and_arrows.png)
+
 * *Sri Ram* is considered by Hindus as a perfect man and his wife *Sita* as an ambodiment of a perfect woman.
 * Many Hindus believe that *Sri Ram* is an *avatar* of Lord *Vishnu*.
 	* *Avatar* comes from *Av* (down) & *Tra* (to passover) which means 'to descend down'. Some scholars say that it means `descent of a man who is in special relationship with GOD`.
