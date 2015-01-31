@@ -1,4 +1,9 @@
 # JESUS (PBUH) AND HIS BELIEFS
+
+
+![Jesus (pbuh) Name](img/Jesus_pbuh_name.png)
+
+
 ### Jesis Christ (pbuh) never claimed divinity
 * Some Christians insist that Jesus (pbuh) claimed divinity but the study of Christian scriptures reveals that Jesus (pbuh) never claimed divinity.
 * There is no single unequivocal or unambiguous statement in the complete bible where Jesus (pbuh) himself says *"I am God"* or where he says, *"Worship me"*.
