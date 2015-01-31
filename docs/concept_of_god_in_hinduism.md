@@ -1,4 +1,7 @@
 # CONCEPT OF GOD IN HINDUISM
+
+![A Hindu Scripture](img/a_hindu_scripture.png)
+
 ### Common Concept of God in Hinduism:
 
 * Hinduism is commonly perceived as a polytheistic religion. Indeed, most Hindus would attest to this, by professing belief in multiple Gods. While some Hindus believe in the existence of three gods, some believe in thousands of gods, and some others in thirty three crore i.e. 330 million Gods. However, learned Hindus, who are well versed in their scriptures, insist that a Hindu should believe in and worship only one God.
