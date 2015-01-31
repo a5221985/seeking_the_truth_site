@@ -1,4 +1,4 @@
-# Sai Baba and His Teachings
+# SAI BABA AND HIS TEACHINGS
 * His name: 
 	* ***Sai*** (Poor One/ Good One – It is a Persian title given to *Sufi* saints) + ***Baba*** (Father/ Grandfather/ Old man/ Sir)
 		* Holy Father/ Saintly Father/ Poor Old Man, 
