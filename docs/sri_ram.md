@@ -19,7 +19,7 @@
 	1. > **"sa paryagac chukram akaayam avranam asnaviram shuddham apapa-viddham
 kavir manishi paribhuh svayambhur
 yathatathyato 'rthan vyadadhac chashvatibhyah samabhyaha"** (Such a person must know in fact the Greatest of all (All Mighty GOD), `WHO is unembodied` [or `bodyless`], omniscient, beyond reproach, without veins, pure and uncontaminate, the self-sufficient Philosopher WHO is awarding everyone's desire since time immemorial.) [Yajurveda 40:8]
-	2. > **"avyaktam vyaktim aapannam manyante maam abuddhayah param bhaavam ajaananto mamaavyayam anuttamam"** (Unable to comprehend MY imperishable, exalted and supreme state of being; `the spiritually deficient regard ME`, `the unmanifested as coming into existence.` [into a bodily form]) [Bhagavad Gita 7:24]
+	2. > **"avyaktam vyaktim aapannam manyante maam abuddhayah param bhaavam ajaananto mamaavyayam anuttamam"** (Unable to comprehend MY imperishable, exalted and supreme state of being; `the spiritually deficient regard ME`, `the unmanifested as coming into existence.` [in a bodily form]) [Bhagavad Gita 7:24]
 
 * Therefore to assume that All Mighty GOD has taken a body goes against Hindu Scriptures.
 
