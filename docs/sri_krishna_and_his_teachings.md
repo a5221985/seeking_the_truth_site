@@ -30,12 +30,14 @@
 	1. > **"arjuna uvaaca kim tad brahma kim adhyaatmam kim karma purushottama adhibhootam ca kim proktam adhidaivam kim ucyate"** (Arjuna inquired: O supreme person (among men), what is Brahma? What is self? What are fruitive activities? What is this material manifestation? And what are demigods? Please exlain this to me.) [Bhagavad Gita 8:1]
 	2. > **"sri-bhagavaan uvaaca aksaram brahma paramam svabhaavo dhyaatmam ucyate bhuuta-bhaavodbhava-karo visargah karma-samagnyitah"** (Sri Krishna said: `The indestructible, transcendental living entity is called Brahma` (All Mighty GOD), and HIS eternal nature is called adhyaatma, the self. Action pertaining to the development of the material bodies of the living entities is called karma, or fruitive activities.) [Bhagavad Gita 8:3]
 
-#### Other Hindu Scruptures about the Nature of All Mighty GOD
-* The following verses describe All Mighty GOD as one who is `not embodied` or `one who has no body`.
+* Furthermore, Sri Krishna describes the nature of All Mighty GOD as one who does not have a body.
+	1. > **"avyaktam vyaktim aapannam manyante maam abuddhayah param bhaavam ajaananto mamaavyayam anuttamam"** (Unable to comprehend MY imperishable, exalted and supreme state of being; `the spiritually deficient regard ME`, `the unmanifested as coming into existence.` [in a bodily form]) [Bhagavad Gita 7:24]
+
+#### Other Hindu Scrupture(s) about the Nature of All Mighty GOD
+* The following verse describes All Mighty GOD as one who is `not embodied` or `one who has no body`.
 	1. > **"sa paryagac chukram akaayam avranam asnaviram shuddham apapa-viddham
 kavir manishi paribhuh svayambhur
 yathatathyato 'rthan vyadadhac chashvatibhyah samabhyaha"** (Such a person must know in fact the Greatest of all (All Mighty GOD), `WHO is unembodied` [or `bodyless`], omniscient, beyond reproach, without veins, pure and uncontaminate, the self-sufficient Philosopher WHO is awarding everyone's desire since time immemorial.) [Yajurveda 40:8]
-	2. > **"avyaktam vyaktim aapannam manyante maam abuddhayah param bhaavam ajaananto mamaavyayam anuttamam"** (Unable to comprehend MY imperishable, exalted and supreme state of being; `the spiritually deficient regard ME`, `the unmanifested as coming into existence.` [in a bodily form]) [Bhagavad Gita 7:24]
 
 * Therefore to assume that All Mighty GOD has taken a body goes against Hindu Scriptures.
 
