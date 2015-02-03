@@ -31,7 +31,7 @@
 	2. > **"sri-bhagavaan uvaaca aksaram brahma paramam svabhaavo dhyaatmam ucyate bhuuta-bhaavodbhava-karo visargah karma-samagnyitah"** (Sri Krishna said: `The indestructible, transcendental living entity is called Brahma` (All Mighty GOD), and HIS eternal nature is called adhyaatma, the self. Action pertaining to the development of the material bodies of the living entities is called karma, or fruitive activities.) [Bhagavad Gita 8:3]
 
 * Furthermore, Sri Krishna describes the nature of All Mighty GOD as one who does not have a body.
-	1. > **"avyaktam vyaktim aapannam manyante maam abuddhayah param bhaavam ajaananto mamaavyayam anuttamam"** (Unable to comprehend MY imperishable, exalted and supreme state of being; `the spiritually deficient regard ME`, `the unmanifested as coming into existence.` [in a bodily form]) [Bhagavad Gita 7:24]
+	1. > **"avyaktam vyaktim aapannam manyante maam abuddhayah param bhaavam ajaananto mamaavyayam anuttamam"** (Unable to comprehend MY (All Mighty GOD's) imperishable, exalted and supreme state of being; `the spiritually deficient regard ME (All Mighty GOD)`, `the unmanifested as coming into existence.` [into a bodily form]) [Bhagavad Gita 7:24]
 
 #### Other Hindu Scrupture(s) about the Nature of All Mighty GOD
 * The following verse describes All Mighty GOD as one who is `not embodied` or `one who has no body`.
