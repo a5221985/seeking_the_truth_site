@@ -4,7 +4,7 @@
 * Video content in text with translation
 	1. **Swami ji:** One! ... Two! ... Three!
 	2. **Disciples and Swamiji:** Dingi Chaka Dingi Chaka Dingi Chaka Dingi Chaka re e e e e e e e.
-	3. **Disciple:** Swami! I have a small doubt.
+	3. **Disciple:** Swami! I have a doubt.
 	4. **Swami ji:** Go ahead my child!
 	5. **Disciple:** What is the meaning of 'Dingi Chaka'
 	6. **Swami ji:** That is a good question! Children! Ding means supreme sole (May All Mighty GOD forgive us) and Chaka means your sole. Integrating Supreme sole with your sole is called Dingi Chaka! 'Touch God'. Are you all ready to touch God?
