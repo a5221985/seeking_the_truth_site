@@ -4,7 +4,7 @@
 
 ### Who is Muhammad (pbuh)?
 * *Muhammad* (pbuh) was born in *Macca*, *Arabia* (Now Sa'udi Arabia) at round 570 CE. His full name is *Abu Al-Qasim Muhammad ibn 'Abd Allah ibn 'Abd al-Muttalib ibn Haashim* (... *Muhammad* the son of *Abd Allah*, the grand son of *Abd al-Muttalib*).
-* He (pbuh) is a direct discendent of Prophet Abraham (pbuh) (*Ibraahim* (*as*) in *Arabic*) who is also the ansestor of Jesus (pbuh) (*'Isa* (*as*) in *Arabic*). This makes Muhammad (pbuh) and Jesus (pbuh) distant cousins.
+* He (pbuh) is a direct discendent of Prophet Abraham (pbuh) (*Ibraahim* (*as*) in *Arabic*) who is also the ansestor of Jesus (pbuh) (*'Isa* (*as*) in *Arabic*). This makes *Muhammad* (pbuh) and Jesus (pbuh) distant cousins.
 * *Muhammad* (pbuh)'s father died even before his birth and his mother passed away when he (pbuh) was six. He (pbuh) was then raised by his (pbuh) paternal uncle *Abu Talib*.
 * *Muhammad* (pbuh) grew up to become a merchant. He (pbuh) was known among his (pbuh) people as the honest and trust worthy (*assadiq al ameen* in *Arabic*). Occasionally he (pbuh) would retreat to a cave in a mountain.
 * At the age of 40 when he (pbuh) was in the cave a miracle took place that changed his (pbuh) life. He was visited by arch angel Gabiel (pbuh) (*Jibrael* (*as*) in *Arabic*) and revealed to him (pbuh) a few verses in Arabic.
