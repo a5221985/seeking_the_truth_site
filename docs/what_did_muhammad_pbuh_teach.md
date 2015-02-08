@@ -17,7 +17,7 @@
 * He (pbuh) influences the hearts and minds of billions of people even to this day and is gaining more and more followers from among different ratial and ethnic groups all over the world. He (pbuh) said the following in his last sermon
 	1. > "... All mankind is from Adam and Eve, an Arab has no superiority over a non-Arab nor a non-Arab has any superiority over an Arab; also a white has no superiority over a black nor a black has any superiority over white except by piety and good action. ..."
 * He (pbuh) also said the following about GOD in his (pbuh) last sermon
-	>  "... O People, listen to me in earnest, worship GOD (The One Creator of the Universe) ..." 
+	1. >  "... O People, listen to me in earnest, worship GOD (The One Creator of the Universe) ..." 
 
 ### What did Muhammad (pbuh) teach about GOD?
 * The basic tenet of Islam is, taking the following oath (*shahaadah* in *Arabic*)
