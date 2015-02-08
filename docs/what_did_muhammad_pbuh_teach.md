@@ -46,7 +46,7 @@
 		
 		1. **Commentary:** If there were more than one GOD, they would have taken away their created and would have caused disharmony. However, everything is in perfect harmony because everything is created and sustained by one supreme GOD.
 
-* The author of the Qur'an often asks questions so that the readers may ponder deeply about them.
+* The Author of the Qur'an often asks questions so that the readers may ponder deeply about them.
 	1. > **"qul man yarzuqukum mina alssamai waalardi amman yamliku alssamAAa waalabsara waman yukhriju alhayya mina almayyiti wayukhriju almayyita mina alhayyi waman yudabbiru alamra fasayaqooloona ALLAHu faqul afala tattaqoona"** (Say: 'Who is it that sustains you (in life) from the sky and from the earth? Or who is it that has power over hearing and sight? And who is it that brings out the living from the dead and the dead from the living? and who is it that rules and regulates all affairs?' They will soon say, 'All Mighty GOD'. Say, 'Will you not then show piety (to HIM)?') [al-Qur'an 10:31]
 	2. > **"walain saaltahum man khalaqahum layaqoolunna ALLAHu faanna yufakoona"** (If thou ask them, who created them, they will certainly say, 'All Mighty GOD': how then are they deluded away (from the truth)?) [al-Qur'an 43:87]
 
@@ -58,11 +58,11 @@
 	1. > **"inna ALLAHu la yaghfiru an yushraka bihi wayaghfiru ma doona thalika liman yashao waman yushrik biALLAHi faqadi iftara ithman AAatheeman"** (All Mighty GOD forgives not that parners should be set up with HIM; but HE forgives anything else, to whom HE pleases; to set up partners with All Mighty GOD is to devise a sin most heinous indeed) [al-Qur'an 4:48]
 	2. > **"laqad kafara allatheena qaloo inna ALLAHa huwa almaseehu ibnu maryama waqala almaseehu ya banee israeela oAAbudoo ALLAHa rabbee warabbakum innahu man yushrik biALLAHi faqad harrama ALLAHu AAalayhi aljannata wamawahu alnnaru wama lilththalimeena min ansarin"** (They do blaspheme who say: 'All Mighty GOD is Christ the son of Mary,' But said Christ: 'O children of Israel! Worship All Mighty GOD, my LORD and your LORD'. Whoever joins other gods with All Mighty GOD - All Mighty GOD will forbid him the garden, and the fire will be his abode. There will for the wrongdoers be no one to help.) [al-Qur'an 5:72]
 
-* The author of the Qur'an challenges all the people who associate partners with All Mighty GOD in the following verse and tells them how week those partners are as compared to All Mighty GOD.
+* The Author of the Qur'an challenges all the people who associate partners with All Mighty GOD in the following verse and tells them how week those partners are as compared to All Mighty GOD.
 	3. > **"ya ayyuha alnnasu duriba mathalun faistamiAAoo lahu inna allatheena tadAAoona min dooni ALLAHi lan yakhluqoo thubaban walawi ijtamaAAoo lahu wain yaslubuhumu alththubabu shayan la yastanqithoohu minhu daAAufa alttalibu waalmatloobu"** (O men! Here is a parable set forth! Listen to it! Those on whom, besides All Mighty GOD, you call, cannot create (even) a fly, if they all met together for the purpose! And if the fly should snatch away anything from them, they would have no power to release it from the fly. Feeble are those who petition and those whom they petition!) [al-Qur'an 22:73]
 	
 #### Relationship of Islam with other religions
-* The author of the Qur'an said the following addressing people who follow other religious faiths
+* The Author of the Qur'an said the following addressing people who follow other religious faiths
 	1. > **"Qul ya ahla alkitabi taAAalaw ila kalimatin sawain baynana wabaiyanakum alla naAAbuda illa ALLAHa wala nushrika bihi shayan wala yattakhitha baAAduna baAAdan arbaban min dooni ALLAHi fain tawallaw faqooloo ishhadoo bianna muslimoona"** (Say: 'O people of the book! Come to common terms as between us and you: That we worship none but All Mighty GOD; That we associate no partners with HIM; That we erect not, from among ourselves, lords and patrons other than All Mighty GOD.' If then they turn back, say ye: 'Bear witness that we (at least) are surrenderers to All Mighty GOD (*Muslims* in *Arabic*)) [al-Qur'an 3:64]
 
 	1. **Etymology**: Muslim: Mu(The one) + Islam (Surrender to All Mighty GOD) => The surrenderers to All Mighty GOD
