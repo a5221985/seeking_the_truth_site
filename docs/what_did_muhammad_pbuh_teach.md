@@ -8,7 +8,7 @@
 * *Muhammad* (pbuh)'s father died even before his birth and his mother passed away when he (pbuh) was six. He (pbuh) was then raised by his (pbuh) paternal uncle *Abu Talib*.
 * *Muhammad* (pbuh) grew up to become a merchant. He (pbuh) was known among his (pbuh) people as the honest and trust worthy (*assadiq al ameen* in *Arabic*). Occasionally he (pbuh) would retreat to a cave in a mountain.
 * At the age of 40 when he (pbuh) was in the cave a miracle took place that changed his (pbuh) life. He was visited by arch angel Gabiel (pbuh) (*Jibrael* (*as*) in *Arabic*) and revealed to him (pbuh) a few verses in Arabic.
-	1. > **"Iqra, Bismirabbikalladhi Khalaq. Khalakal insaanamin alaq. Iqra wa RABBukal akram. Alladi allamabil qalam. Allamal insaanamaalam ya'lam"** (Read! in the name of thy LORD who created! Created man, out of a clot of congealed blood. Read! And thy LORD is most bountiful. Who taught (the use of) the pen, Taught man that which he knew not! [Qur'an Al-Alaq 96:1-5]
+	1. > [Aududbillahi minashaitan irrajim, bismillah irrahman irrahim] **"Iqra, Bismirabbikalladhi Khalaq. Khalakal insaanamin alaq. Iqra wa RABBukal akram. Alladi allamabil qalam. Allamal insaanamaalam ya'lam"** (Read! in the name of thy LORD who created! Created man, out of a clot of congealed blood. Read! And thy LORD is most bountiful. Who taught (the use of) the pen, Taught man that which he knew not! [Qur'an Al-Alaq 96:1-5]
 * From that day onwards, he (pbuh) continued to receive revelation from arch angel Gabriel (pbuh) in small chunks as and when it became necessary to deal with a problem or a situation that he (pbuh) encountered. He (pbuh) recieved revelation for a period of 23 years. These verses were then compiled into what we now know as the Qur'an. [Biography of the Prophet (pbuh) - *Ibn Ishaaq*, *Ibn Hishaam*]
 
 ### What did Muhammad (pbuh) achieve?
@@ -32,6 +32,7 @@
 	
 	2. **Meaning:** Say! All Mighty GOD is one and only, All Mighty GOD is absolute and eternal. HE is neither the mother or father of anybody nor any body gives or has given birth to HIM. There is nothing that can be compared to HIM in this universe.
 	3. **Commentary:** The attribute of being absolute and eternal can only belong to All Mighty GOD. All of HIS creation is temporary or conditional (dependent on HIM). The four line definition serves as a touchstone of theology (study of GOD) for Muslims. If anybody claims that he/she is GOD(dess), then the four verses are applied as test which none of HIS creation can pass (Because the last verse says "There is nothing like unto HIM").
+	
 * The following verses in the Qur'an explain the nature of All Mighty GOD
 	1. > **"la tudrikuhu alabsaru wahuwa yudriku alabsara wahuwa allateefu alkhabeeru"** (No vision can grasp HIM, But HIS grasp is over all vision; HE is above all comprehension, Yet is acquainted with all things.) [al-Qur'an 6:103]
 	2. > **"inna ALLAHa la yathlimu mithqala tharratin wain taku hasanatan yudaAAifha wayuti min ladunhu ajran AAatheeman"** (All Mighty GOD is never unjust in the least degreee; and if there is a good deed, HE will double it and will give (the doer) from HIS presence an immense reward) [Al-Qur'an 4:40]
