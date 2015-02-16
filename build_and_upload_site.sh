@@ -6,7 +6,7 @@ then
   exit -1
 fi
 
-mkdocs build --clean && \ 
-git add --all && \ 
-git commit -m "${1}" && \ 
+mkdocs build --clean && \
+git add --all && \
+git commit -m "${1}" && \
 git push origin gh-pages
