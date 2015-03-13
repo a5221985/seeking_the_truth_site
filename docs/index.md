@@ -12,6 +12,7 @@
 ## [Why do I believe in Heaven and Hell](why_do_i_believe_in_heaven_and_hell.md)
 ## [History Of Astrology](history_of_astrology.md)
 ## [Is Blindly Following Others Beneficial?](is_blindly_following_others_beneficial.md)
+## [Democracy v/s Theocracy](democracy_versus_theocracy.md)
 
 ## Any comments? Please send me an e-mail
 * My e-mail id is abdm03142014@gmail.com
